@@ -1,1 +1,1 @@
-![Opensource](/images/microsoft-windows-10-s-a-cheat-sheet-770x342.jpeg)
+![Opensource](/images/360_F_470363201_AW6HOFPiDTkuL7wLh1DPCFjLf0zd3vUP.jpg)
